@@ -24,9 +24,9 @@ LIABILITY, WHETHER IN AN ACTION OF CONTRACT, TORT OR OTHERWISE, ARISING FROM,
 OUT OF OR IN CONNECTION WITH THE SOFTWARE OR THE USE OR OTHER DEALINGS IN THE
 SOFTWARE.
 
-## Notice About PDFs in This Repository
+## Notice About Documents in This Repository
 
-Some PDF files included in this repository may be copyrighted by their
-respective authors. If you believe a PDF is included here without proper
+Some files included in this repository may be copyrighted by their
+respective authors. If you believe a document is included here without proper
 permission or you are the rights holder of any such content, please contact the
 author to request removal or appropriate attribution.
