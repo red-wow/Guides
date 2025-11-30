@@ -38,6 +38,6 @@ https://devforum.roblox.com/t/frappe-training-guide/174013/2
 
 ----
 
-**Frappe Staff Rewards Scheme**
+**Frappe Staff Rewards Scheme**<br>
 https://devforum.roblox.com/t/frappe-staff-rewards-scheme/173708
 
