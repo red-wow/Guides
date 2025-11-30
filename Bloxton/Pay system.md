@@ -1,6 +1,3 @@
-**Pay System**
-<br>
-----
 85 Robux Per Session Hosted - Max 1000 Robux (12 Sessions) 
 ----
 10 Robux Per Ticket Cleared-  Max 250 Robux (25 tickets) 
