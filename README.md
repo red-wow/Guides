@@ -6,4 +6,5 @@ https://discord.gg/kPMMPuwtc2
 
 Contact me to add
 
-contactwowimred@gmail.com
+contactwowimred@gmail.com <sub>(legal only)</sub> or
+wowimred on Discord
