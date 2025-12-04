@@ -1,11 +1,8 @@
-Join RTC's Discord!
-
-https://discord.gg/kPMMPuwtc2
-
+**Roblox Troll Central**
+> * [Discord](https://discord.gg/kPMMPuwtc2)
+> * [TikTok](https://tiktok.com/@TrashiezHater)
+> * [Website](https://rblx.xyz)
 ----
-
-Contact me to add
-
-contactwowimred@gmail.com <sub>(legal only)</sub> or
-<br>
-wowimred on Discord
+**Contact**
+> * Email: contactwowimred@gmail.com
+> * Discord: wowimred (non-legal)
