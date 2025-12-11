@@ -1,6 +1,8 @@
-# Leaked Guides from many roleplay groups, provided to you by **[Roblox Troll Central](https://rblx.xyz/?utm=leaked_guides)** 
+# Leaked Guides - by **[Roblox Troll Central](https://rblx.xyz/?utm=leaked_guides)** 
 
-All the leaked guides, saved, in one place. 🔐
+All the leaked guides from the most popular roblox group — all saved in one place. 🔐
+
+----
 
 ### Submissions & Inquiries
 
