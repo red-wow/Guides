@@ -1,8 +1,4 @@
-**Roblox Troll Central**
-> * [Discord](https://discord.gg/kPMMPuwtc2)
-> * [TikTok](https://tiktok.com/@TrashiezHater)
-> * [Website](https://rblx.xyz)
+# [Roblox Troll Central](https://rblx.xyz/?utm=leaked_guides)
+[Discord](https://discord.gg/kPMMPuwtc2) | [TikTok](https://tiktok.com/@TrashiezHater)
 ----
-**Contact**
-> * Email: contactwowimred@gmail.com
-> * Discord: wowimred (non-legal)
+Inquiries: contactwowimred@gmail.com
